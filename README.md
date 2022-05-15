@@ -1,6 +1,6 @@
 ### Hi there 👋, I am Mohendra Kishor
 #### I am Web developer and wix designer.
-![I am Web developer and wix designer.](file:///C:/Users/successway/Pictures/133814376_857172171787915_8251519304453448365_n.jpg)
+![I am Web developer and wix designer.]file:///C:/Users/successway/Pictures/133814376_857172171787915_8251519304453448365_n%20(1).jpg
 
 I am front Web developer. But, i will do wix website design in fiverr. Last 1 year i work in  wix website design or redesign. Many project was completed without any fault. Here are some samples of my work as portfolio. You can see it.
 
