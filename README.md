@@ -6,7 +6,7 @@ I am front Web developer. But, i will do wix website design in fiverr. Last 1 ye
 
 Skills: HTML / CSS / JS / WIX / Wordpress / Squarspace 
 
-- 🔭 I’m currently working on Fiverr / Upwork 
+- U+1F642 I’m currently working on Fiverr / Upwork 
 - 🌱 I’m currently learning python 
 
 
